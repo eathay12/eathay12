@@ -1,5 +1,8 @@
--curitiba-pr
-- atualmente estou estudando,no ensino medio
--
-- 
-- 
+- ESTUDO NO MORELLI 😇
+- CURITIBA-PR 🇧🇷
+- 15 ANOS ♡
+- GOSTO DE LER LIVROS 😌
+
+
+
+
